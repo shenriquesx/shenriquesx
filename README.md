@@ -18,4 +18,5 @@
 ### Links 🔗
 
 - [Personal Website](https://seanhenriques.com)
+- [IGN](https://www.ign.com/playlist/shenriquesx)
 - [PSNProfiles](https://www.psnprofiles.com/shenriquesx)
